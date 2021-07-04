@@ -1,4 +1,7 @@
-### Hi there,  👋
+I don't need air to breathe when you kill the bees
+And every river bed is dry as a bone
+Oh, I will still survive when the plants have died
+And the atmosphere is just a big hole
 
 <!-- https://icedrive.net/ -->
 <!--
